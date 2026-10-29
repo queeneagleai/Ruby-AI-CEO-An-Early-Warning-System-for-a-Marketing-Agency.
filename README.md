@@ -156,6 +156,7 @@ I help businesses automate repetitive work with AI agents and workflows, and I t
 - Portfolio: [queeneagleai-plum-iota.vercel.app](https://queeneagleai-plum-iota.vercel.app)
 - WhatsApp: +234 908 024 2840
 - LinkedIn: [www.linkedin.com/in/queen-ikwuji-8b925524a](https://www.linkedin.com/in/queen-ikwuji)
+- Book a Discovery Call: (https://calendly.com/queenikwuji/ai-workflow-discovery-call)
 
 **Want something like this for your business?** Get in touch through my WhatsApp or LinkedIn DM
 
